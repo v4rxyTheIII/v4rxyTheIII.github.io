@@ -23,7 +23,7 @@ https://www.roblox.com/fr/groups/17285589/Cuby-Officals#!/about
 
 
 Qr Code For NErDS💀
-![3me6mkm4-400](https://github.com/user-attachments/assets/7e6fef52-5cf8-4ff9-8627-b8a358dfc86c)
+###### ![3me6mkm4-400](https://github.com/user-attachments/assets/7e6fef52-5cf8-4ff9-8627-b8a358dfc86c)
 
 
  ![l](https://github.com/user-attachments/assets/1cf7fd75-b337-4091-89e4-76ea2eb20faa)
