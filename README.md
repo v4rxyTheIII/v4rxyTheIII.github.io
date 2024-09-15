@@ -9,7 +9,6 @@
 # Best SCRIPTER fr
 ----------------------------------------------------------------------------------------
 ![flat,800x800,075,f](https://github.com/user-attachments/assets/2b52d2b0-4fc7-45f0-be6b-acbb917c6eaf)
-
 ----------------------------------------------------------------------------------------
 ### ![noFilter](https://github.com/user-attachments/assets/40a7de0e-2778-439c-89ef-2ad3e5afc99d)
 # All My project Are under Licence Of Cuby Officals
@@ -27,3 +26,7 @@ Qr Code For NErDS💀
 
 
  ![l](https://github.com/user-attachments/assets/1cf7fd75-b337-4091-89e4-76ea2eb20faa)
+------------------------------------------
+### Paid Ads 
+Watch Free Anime Here 
+https://direct-link.net/1232899/free-anime
